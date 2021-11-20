@@ -1,1 +1,1 @@
-# resortMANAGEMENT# Dayquote
+# Dayquote
